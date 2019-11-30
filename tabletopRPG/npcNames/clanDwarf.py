@@ -1,0 +1,16 @@
+Balderk
+Battlehammer
+Brawnnanvil
+Dankil
+Fireforge
+Frostbeard
+Gorunn
+Holderhek
+Ironfist
+Loderr
+Lutgehr
+Rumnaheim
+Strakeln
+Torunn
+Ungart
+xxx
